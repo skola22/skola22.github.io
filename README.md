@@ -1,0 +1,1 @@
+# skola22.github.io
